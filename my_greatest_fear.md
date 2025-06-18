@@ -5,7 +5,7 @@ One of my greatest fears in life is **snakes**. Whether they are big or small, r
 - Their sudden movements 
 - The way they stare without blinking 
 - The fear of being bitten 
-> “Even a picture of a snake gives me chills.”
+> Even a picture of a snake gives me chills.
 ---
 ##  Fear of the Dark
 Another fear I have is the **dark**. I often feel like something is hiding or watching me in the darkness.
